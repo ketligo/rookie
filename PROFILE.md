@@ -1,2 +1,3 @@
-Welcome to my GitHub profile!
+Welcome to my GitHub profile!  
+
 I`m a rookie designer, maker, felt artist ....
